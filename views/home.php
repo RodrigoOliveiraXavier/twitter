@@ -1,0 +1,1 @@
+Área interna do TWITTER
